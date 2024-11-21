@@ -6,6 +6,7 @@ Cuando no estoy programando me gusta andar en moto y disfrutar de los paisajes.
 Conectar con la naturaleza y el viento en la cara. Es la mejor forma de desconectar de la pantalla y aclarme las ideas.
 
 Me gusta aprender sobre nuevas tecnologías, nunca parar de formarme.
+
 ---
 ## Contacto
 
